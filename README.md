@@ -1,1 +1,1 @@
-![image](https://raw.githubusercontent.com/AnandBaburajan/anandbaburajan/main/meoww.gif)
+![image](https://raw.githubusercontent.com/AnandBaburajan/anandbaburajan/main/meow.gif)
